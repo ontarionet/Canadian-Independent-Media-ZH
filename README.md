@@ -2,6 +2,8 @@
 
 以下是加拿大各地独立媒体的综合列表（[来源](https://www.unfettered.ca/)），每家媒体都致力于就各种主题提供高质量的新闻报道。请浏览它们的介绍，并通过各种平台与它们联系。
 
+Below you'll find a comprehensive list ([source](https://www.unfettered.ca/)) of independent media outlets across Canada, each dedicated to delivering high-quality journalism on a variety of topics. Explore their descriptions and connect with them through their various platforms.
+
 ---
 
 ## Blacklock‘s Reporter
